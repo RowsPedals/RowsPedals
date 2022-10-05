@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RowsPedals
+- 👀 I’m interested in ... finding a job!
+- 🌱 I’m currently learning ... as many basic concepts I need to do anything i want eventually
+- 💞️ I’m looking to collaborate on ... anything i possibly can (or mainly, want to :3)
+- 📫 How to reach me ... uhhh idk im really kind of a hermit so if we become close with eachother I'll share my discord :p
