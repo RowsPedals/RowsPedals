@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @RowsPedals
 - 👀 I’m interested in ... finding a job!
 - 🌱 I’m currently learning ... as many basic concepts I need to do anything i want eventually
-- 💞️ I’m looking to collaborate on ... anything i possibly can (or mainly, want to :p)
-- 📫 How to reach me ... good question - I'm in need of dev friends so don't hesitate to ask for my discord (i dont wanna have it public really, and also im not sure theres a way to reach out to me personally on github anyway >.>'
+- ✨ Looking for opportunities to freelance | More than excited to work with other indie devs when possible.
+
+⚘ ~𝓕𝓪𝓻𝓮𝔀𝓮𝓵𝓵~ ⚘
